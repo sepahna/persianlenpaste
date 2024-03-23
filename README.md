@@ -1,0 +1,2 @@
+# persianlenpaste
+share text
